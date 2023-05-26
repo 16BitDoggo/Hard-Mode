@@ -11,16 +11,19 @@ Notes:
 - New levels coming out soon!
 
 Credits:
+
 - Me ( @16BitDoggo )
 - griffpatch ( @griffpatch / @griffpatch_tutor )
 - flowerhead ( yt - @flowerheadmusic )
 Songs Used:
- - Pondering My Orb - flowerhead
- - frog shop - flowerhead
- - synth of time - flowerhead
- - monkey mode - flowerhead
- - happy go lucky - flowerhead
+ 
+- Pondering My Orb - flowerhead
+- frog shop - flowerhead
+- synth of time - flowerhead
+- monkey mode - flowerhead
+- happy go lucky - flowerhead
 Links:
- - https://youtube.com/@flowerheadmusic
+
+- https://youtube.com/@flowerheadmusic
 No YouTube?
- - https://flowerheads.bandcamp.com/
+- https://flowerheads.bandcamp.com/
