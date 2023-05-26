@@ -20,7 +20,7 @@ Credits:
  - synth of time - flowerhead
  - monkey mode - flowerhead
  - happy go lucky - flowerhead
- Links:
+Links:
  - https://youtube.com/@flowerheadmusic
- No YouTube?
+No YouTube?
  - https://flowerheads.bandcamp.com/
